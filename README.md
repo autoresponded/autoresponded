@@ -7,5 +7,9 @@
 </p>
 
 <p align="center">
+  <b>. links will be put up soon .</b>
+</p>
+
+<p align="center">
   <img src="https://64.media.tumblr.com/7f8be032f4c71d2aa87940bccbe33eee/258156ccecb2decd-12/s2048x3072/babd2c703922c6a60ae38598ad4d2505c4a5c6ad.pnj">
 </p>
